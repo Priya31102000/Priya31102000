@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning data science
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me pm205279@gmail.com
-- 😄 Pronouns: she 
+- 😄 Pronouns🤴
 - ⚡ Fun fact:"I've travel" 
 
 <!---
